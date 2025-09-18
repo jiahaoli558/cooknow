@@ -32,5 +32,5 @@
 
 如果您对本隐私政策有任何疑问，请通过以下方式与我们联系：
 
-[请在此处填入您的联系电子邮件地址，例如：cooknow.support@email.com]
+gscassli@foxmail.com
 
